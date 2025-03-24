@@ -1,5 +1,0 @@
-## Week x Progress Log
-✅   
-✅   
-✅  
-❌   
